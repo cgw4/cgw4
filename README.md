@@ -1,12 +1,12 @@
-吃瓜网 最新地址 👋 (最新更新时间2023-11-29)
+吃瓜网 最新地址 👋 (最新更新时间2023-12-18)
 
-⏰ 免翻入口6：https://cgwang.shop （最新）
+⏰ 免翻入口6：https://cgwang.shop  （最新）
 
-⏰ 免翻入口6：https://cgwang.space
+⏰ 免翻完整版入口：https://hy24z8.vxzxvs.com （最新）
 
-⏰ 免翻入口5：https://cgwang.info
+⏰ 免翻入口5：https://cgwang.space
 
-⏰ 免翻入口4：https://cgwang.lol
+⏰ 免翻入口4：https://cgwang.info
 
 ⏰ 免翻入口3：https://cgwang.live
 
@@ -15,8 +15,8 @@
 ⏰ 免翻入口1：https://cgwang.cc
 
 获取最新地址方式（请都收藏）： 
-1.网址   https://github.com/cgw4
-2.发任意内容至 flu8753@gmail.com
+1.网址    https://github.com/cgw4
+2.发任意内容至  flu8753@gmail.com
 
 官方电报（telegram）群： https://t.me/cgw66
 
