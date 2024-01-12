@@ -1,6 +1,6 @@
 吃瓜网 最新地址 👋 (最新更新时间2024-1-5)
 
-⏰ 免翻入口6： https://cgwang.life/（最新）
+⏰ 免翻入口6： https://cgwang.life   （最新）
 
 ⏰ 免翻完整版入口： https://cgw.yaktwb.com （最新）
 
