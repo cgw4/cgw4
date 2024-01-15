@@ -4,29 +4,9 @@
 
 ⏰ 免翻完整版入口：https://h2c2z2.jbphvd.com/ （最新）
 
-⏰ 免翻入口10：https://cgwang.world
-
-⏰ 免翻入口9：https://cgwang.life 
-
-⏰ 免翻入口8：https://cgwang.site
-
-⏰ 免翻入口7：https://cgwang.shop
-
-⏰ 免翻入口6：https://cgwang.space
-
-⏰ 免翻入口5：https://cgwang.info
-
-⏰ 免翻入口4：https://cgwang.lol
-
-⏰ 免翻入口3：https://cgwang.live
-
-⏰ 免翻入口2：https://cgwang.org
-
-⏰ 免翻入口1：https://cgwang.cc
-
 获取最新地址方式（请都收藏）：
-1.网址 https://github.com/cgw4
-2.发任意内容至 flu8753@gmail.com
+1.发任意内容至 flu8753@gmail.com
+2.网址 https://github.com/cgw4
 
 1.加入扣扣粉丝群： http://i.mgrzz93.cn/s/b56H
 2.官方电报（telegram）群： https://t.me/cgw66
