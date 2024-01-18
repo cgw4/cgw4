@@ -2,7 +2,7 @@
 
 ⏰ 免翻入口：https://chigua.buzz  （最新）
 
-⏰ 免翻完整版入口：https://h2c2z2.jbphvd.com/ （最新）
+⏰ 免翻完整版入口：https://h2fhz1.yaktwb.com/  （最新）
 
 ⏰ 免翻入口：https://cgwang.store
 
