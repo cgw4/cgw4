@@ -1,6 +1,6 @@
 吃瓜网 最新地址 👋 (最新更新时间2024-01-22)
 
-⏰ 免翻入口：https://https://chigua.win  （最新）
+⏰ 免翻入口：https://chigua.win  （最新）
 
 ⏰ 免翻完整版入口：https://h2fhz6.yaktwb.com/  （最新）
 
