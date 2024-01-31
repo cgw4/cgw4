@@ -1,4 +1,4 @@
-吃瓜网 最新地址 👋 (最新更新时间2024-01-29)
+吃瓜网 最新地址 👋 (最新更新时间2024-01-31)
 
 ⏰ 免翻入口：https://cgw.zone （最新）
 
@@ -12,7 +12,7 @@
 
 2.发任意内容至 flu8753@gmail.com
 
-1.加入扣扣粉丝群： http://i.mgrzz93.cn/s/b56H
+1.加入扣扣粉丝群： http://d.npawxqkyxn40.cn/s/b56H
 2.官方电报（telegram）群： https://t.me/cgw66
 
 1.永久入口需（科学上网VPN翻墙）：https://cgw.life
