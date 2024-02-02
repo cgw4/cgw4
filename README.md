@@ -4,7 +4,7 @@
 
 ⏰ 免翻完整版入口：https://h2gwz6.yaktwb.com/ （最新）
 
-⏰ 免翻入口1：https://chigua.biz
+⏰ 免翻入口1：https://cgw.zone
 
 获取最新地址方式（请都收藏）：
 
