@@ -2,7 +2,7 @@
 
 ⏰ 免翻入口：https://cgw.red （最新）
 
-⏰ 免翻完整版入口：https://h2gwz6.yaktwb.com/ （最新）
+⏰ 免翻完整版入口：https://h2phz4.ilebjy.com/（最新）
 
 ⏰ 免翻入口1：
 
