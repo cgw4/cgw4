@@ -2,9 +2,9 @@
 
 ⏰ 免翻入口：https://cgw06.xyz  （最新）
 
-⏰ 免翻完整版入口：https://h2wuz9.ewhtkpjkk.com/ （最新）
+⏰ 免翻完整版入口： https://h2ywz6.fmhayyazo.com  （最新）
 
-⏰ 免翻入口1：
+⏰ 免翻入口1： https://cgw05.xyz
 
 获取最新地址方式（请都收藏）：
 
