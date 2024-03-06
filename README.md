@@ -16,7 +16,7 @@
 
 2.官方电报（telegram）群： https://t.me/cgw66
 
-1.永久入口需（科学上网VPN翻墙）：https://cgw.life
+1.永久入口需（科学上网VPN翻墙）：https://cgwang.life
 
 2.免费VPN翻墙： https://9f7.hiztpa.com/c-12402/a-b8KJ4
 
