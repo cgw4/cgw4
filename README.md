@@ -1,6 +1,6 @@
 吃瓜网 最新地址 👋 (最新更新时间2024-03-16)
 
-⏰ 免翻入口：https://cgw16.xyz  （最新）
+⏰ 免翻入口：https://cgw17.xyz  （最新）
 
 ⏰ 免翻完整版入口： https://h2y7z9.jnekwdowa.com  （最新）
 
