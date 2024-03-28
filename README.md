@@ -4,7 +4,9 @@
 
 ⏰ 免翻完整版入口： https://h3cwz2.obwpflsvl.com/ （最新）
 
-⏰ 免翻入口1： https://cgw25.xyz  
+⏰ 免翻入口1： https://cgw25.xyz 
+ 
+⏰ 吃瓜网App免费看片： https://3110.cmwzbtmfr.tips/
 
 获取最新地址方式（请都收藏）：
 
